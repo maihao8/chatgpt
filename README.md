@@ -4,6 +4,8 @@
 
 很多人确实有场景必须用到 ChatGPT，而且希望是 GPT‑4 或带联网、插件、代码解释器这些付费功能，于是“ChatGPT 账号购买”“ChatGPT 代充”“OpenAI 账号出租”这种灰色服务就冒出来了。
 
+### 海外账号批发，5年老店👉👉👉立即进入购买：[maihaojun.com](https://maihaojun.com/)
+
 ### 一、为什么那么多人在搜“ChatGPT账号购买”？
 
 对大部分国内用户来说，使用 ChatGPT 会遇到几道门槛：
